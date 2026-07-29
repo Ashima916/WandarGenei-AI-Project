@@ -1,1 +1,1 @@
-# WandarGenei-AI-Project
+# WandarGenei AI-Project
